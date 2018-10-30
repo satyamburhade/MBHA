@@ -1,3 +1,3 @@
 # MBHA
 Vinayak Guest House is an unusually stylish and relaxed guest house in the heart of the city. Our aim is to provide four star quality on a small scale, for visitors who want comfortable, contemporary interiors and quality breakfasts, but without the formality and expense of a top hotel. All our centrally heated bedrooms are well furnished and each has colour TV with tea, coffee. We have two double rooms, one with a king size bed, and a twin room. Our one single room has private facilities.We are noted for our quality breakfasts using local produce and for offering a wide choice including vegetarian options. Packed lunches are available on request. Birthdays, weddings, engagements or anniversary.
-hOPE U ENJOY UR STAY!!!!!!
+HOPE YOU ENJOY YOR STAY!!!!!!
